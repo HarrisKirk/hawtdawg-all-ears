@@ -1,5 +1,11 @@
 # FAQ
 
+## Where do I list my favorite treats?
+
+Open the Hawt Dawg appp and click on "Edit Profile"
+Scroll down to the section called "Passions" and tell potential mates and friends all about the treats and toys that make your tail wag.
+When you're done, click "Save Changes" to show the world.
+
 ## How many photos can I post
 
 We know your want to show off your fabuouts furry face, so we've fiven youo space to upload up to 15 photos!
